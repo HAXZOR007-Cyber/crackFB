@@ -1,1 +1,0 @@
-SEL-FER-FOR-EVR
